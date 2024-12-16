@@ -1,4 +1,4 @@
-# ~[Newly-Updated!] Monopoly Go Free Dice Links Today December 2024~!!
+# ![Newly-Updated!] Monopoly Go Free Dice Links Today December 2024!!
 
 Monopoly Go is a popular mobile game that brings a new twist to the classic board game. One of the most sought-after items in Monopoly Go are the dice, as they are essential for progressing through the game. 
 
